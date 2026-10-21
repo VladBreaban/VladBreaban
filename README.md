@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @VladBreaban
 - 👀 I’m interested in Software Engineering
-- 📫 How to reach me: https://www.linkedin.com/in/vlad-breaban-4a6394194/
 - I am currently  a Top Rated Plus Freelancer on Upwork
